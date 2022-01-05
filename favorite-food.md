@@ -10,3 +10,7 @@
 * Ikura
 * Madai
 
+⚠️ **be careful** ⚠️ especially at all-you-can-eat restaurants!
+
+>## "One time I lost count of how many I had eaten... my bill was quite high, _and_ I threw up on the ride home."
+[_-anonymous_] ()
